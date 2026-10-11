@@ -25,9 +25,9 @@ Your mission: **revise and improve it**, making it coherent, funny, and illustra
 
 7. A rocket blasted off, but at the same time the **time machine** broke down.  
 
-8. The cat was supposed to talk here, but the line is missing.  
+8. The cat starting spinning and start singing OIIA OIIA
 
-9. In the forest, the detective discovered… something.  
+9. In the forest, the detective discovered… something.
    (What did they find?)  
 
-10. The ending… well, we don’t really have one. Please fix this.
+10. The ending… cat start spin so hard it cost tornado and everything fall apart
