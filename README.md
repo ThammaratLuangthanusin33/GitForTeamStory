@@ -25,7 +25,7 @@ Your mission: **revise and improve it**, making it coherent, funny, and illustra
 
 7. A rocket blasted off, but at the same time the **time machine** broke down.  
 
-8. The cat starting spinning and start singing OIIA OIIA
+8. The cat starting spinning and start singing jkjkokok
 
 9. In the forest, the detective discovered… something.
    (What did they find?)  
