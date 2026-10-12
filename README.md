@@ -30,4 +30,4 @@ Your mission: **revise and improve it**, making it coherent, funny, and illustra
 9. In the forest, the detective discovered… something.
    (What did they find?)  
 
-10. The ending… cat start spin so hard it cost tornado and everything fall apart
+10. The ending… cat start spin so fking hard it cost tornado and everything fall apart
