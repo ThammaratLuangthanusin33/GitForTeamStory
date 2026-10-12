@@ -10,7 +10,7 @@ Your mission: **revise and improve it**, making it coherent, funny, and illustra
 1. Once upon a time, there was a **small castle**.  
    ![castle](img1.png)
 
-2. Then suddenly, a **dragon** appeared… but maybe it was actually a **robot**?  
+2. Then suddenly, an **alien** appeared… but maybe it was actually a **robot**?  
    (Nobody is sure yet.)
 
 3. The scientist shouted something very important but nobody wrote it down.  
